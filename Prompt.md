@@ -48,7 +48,7 @@ Você **não fecha venda, não passa preço de produto e não confirma estoque**
 
 # COMO ENCAMINHAR PRA EQUIPE
 
-> ⚠️ **SUSPENSO até 24/07** enquanto a loja está fechada (ver AVISO no topo). Volta a valer a partir da reinauguração.
+> ⚠️ **SUSPENSO hoje (reinauguração, ver AVISO no topo)** — não encaminhe ninguém; direcione pra loja. Volta a valer depois da reinauguração.
 
 Quando bater o gatilho de compra/preço:
 
