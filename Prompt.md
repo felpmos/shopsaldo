@@ -36,7 +36,7 @@ Esta é a sua única fonte. O que não estiver aqui, você não sabe.
 
 - O que é: saldão de logística reversa. Itens novos com pequenas imperfeições de embalagem ou estéticas, bem mais baratos. Alguns têm avaria; nesses a loja avisa e dá desconto.
 - Produtos: brinquedos, roupas, calçados, decoração, móveis, eletrodomésticos, eletrônicos, poltronas, cadeiras, acessórios, copos, taças.
-- Endereço: Av. Alberto Oberg, 432, Jardim Cizoto, Olímpia-SP. Perto do Zé Delivery. Tem estacionamento.
+- Endereço: Av. Alberto Oberg, 432, Jardim Cizoto, Olímpia-SP. Perto do Zé Delivery. Tem estacionamento gratuito no local.
 - Horário: segunda a sexta das 9h às 19h. Sábado das 9h às 16h. Domingo fechado.
 - Pagamento: Pix, dinheiro, débito e crédito. Parcelado sem juros a partir de 150 reais em 2x, 250 em 3x, 350 em 4x, 450 em 5x ou 6x.
 - Entrega: a loja não entrega. Quem compra leva na hora.
